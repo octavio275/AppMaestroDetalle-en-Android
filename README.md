@@ -1,0 +1,1 @@
+# AppMaestroDetalle-en-Android
